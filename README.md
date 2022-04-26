@@ -4,16 +4,16 @@ MEMBERS:
 
 Arnan, Aj Stephen
 
-Atillo, Jessa
+Atillo, Jessa Mae Cerio
 
 Bueno, Rhonil
 
-Cartilla, Kishey
+Cartilla, Kishey Lowen Flores
 
 Faciolan, Rogen John
 
-Falcone, Julian Florenz
+Falcone, Julian Florenz Lapiz
 
-Mabatid, Joshua
+Mabatid, Joshua Cage
 
-Labitad, Nichole
+Labitad, Nichole Mabatid
